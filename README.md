@@ -1,1 +1,0 @@
-# PPS_mini_project
